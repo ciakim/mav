@@ -1,2 +1,2 @@
 # mav.sytes.net
-New Website:  mav.yestcoin.com
+New Website:  mavv.sytes.net
